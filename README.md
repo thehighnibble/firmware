@@ -1,7 +1,7 @@
 # thehighnibble.com
 For the more significant bits
 
-Visit [thehighnibble.com](https://thehiughnibble.com)
+Visit [thehighnibble.com](https://thehighnibble.com)
 
 Follow on:
     Twitter [@TheHighNibble](https://twitter.com/TheHighNibble)
